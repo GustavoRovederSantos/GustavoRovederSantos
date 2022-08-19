@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Gustavo Roveder
+- 👀 I’m interested in programaçô
+- 🌱 I’m currently learning a programar no HTML
+- 📫 How to reach me email de contato gustavoroveder6@gmail ou gustavo.roveder.santos @escola.pr.gov.br
